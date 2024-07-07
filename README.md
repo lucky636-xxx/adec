@@ -1,0 +1,2 @@
+# adec
+adequate economic community
